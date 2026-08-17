@@ -1,2 +1,2 @@
 # stargazers-logstargazers-log
-Log Starred Sites
+Log Starred Sites how do I edit
